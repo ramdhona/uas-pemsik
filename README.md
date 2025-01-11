@@ -1,6 +1,6 @@
 # Kebencanaan Gunung Merapi
 
-Nama Mahasiswa: A11.2022.14033  
+Nama Mahasiswa: Dwi Ramdhona  
 NIM: A11.2022.14033  
 
 =================================
